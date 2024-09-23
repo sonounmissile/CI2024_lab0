@@ -1,1 +1,1 @@
-i was sure that the equator was positioned a bit higher, im sorry that i typed 17 in the chat :/
+if the equator was juuust a little bit higher, 17 would have been a good guess
